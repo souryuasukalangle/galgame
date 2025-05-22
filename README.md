@@ -1,3 +1,16 @@
+#q群免费提供加速器vpn梯子
+
+galgame网站（现在只收集免费的，不麻烦的网站，有事可加群联系）
+
+感谢江湖各位大佬们的付出，前面四个是看gal资料之类的，后面的可以下载资源
+
+手机玩家，优先学会下载krkr2模拟器、tyranor模拟器、ons模拟器........
+
+然后下载ZArchiver pro解压缩软件。这里提供网站（https://www.32r.com/）也可以自己搜来下载
+
+上面的东西如何使用，有些gal网站会教你，要不然自己到处搜一下也行啊。
+
+bgm：https://bgm.tv/game/browser/Galgame
 
 cngal：https://www.cngal.org/	
 
