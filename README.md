@@ -1,6 +1,6 @@
 #q群免费提供加速器vpn梯子
 
-galgame网站（现在只收集免费的，不麻烦的网站，有事可加群联系）
+galgame网站（现在只收集免费的，不麻烦的网站，论坛网站后续有空再整理，有事可加群联系）
 
 感谢江湖各位大佬们的付出，前面四个是看gal资料之类的，后面的可以下载资源
 
@@ -22,7 +22,7 @@ cngal：https://www.cngal.org/
 
 2dfan：https://2dfan.com/
 
-Acgdb：https://acgdb.de/
+acgdb：https://acgdb.de/
 
 acg港湾：https://acggw.cc/	
 
