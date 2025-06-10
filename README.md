@@ -76,6 +76,8 @@ wafu：https://wafuwafu.com/
 
 莫邪acg：https://xiuren.cyou/	
 
+绮梦acg：https://game.acgs.one/
+
 青桔网：https://qingjuacg.top	
 
 绅仕天堂：https://www.chgal.com/	
