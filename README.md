@@ -50,8 +50,6 @@ touchgal：https://www.touchgal.io/
 
 wafu：https://wafuwafu.com/
 
-初音的青葱：https://www.fufugal.com/
-
 次元茶馆：https://pan.cycg.xyz/
 
 达の资源站：https://file.bakadax.top/	
