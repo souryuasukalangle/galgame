@@ -48,6 +48,8 @@ neko：https://www.nekogal.com/
 
 touchgal：https://www.touchgal.io/ 
 
+vndb：https://vndb.org/
+
 wafu：https://wafuwafu.com/
 
 次元茶馆：https://pan.cycg.xyz/
