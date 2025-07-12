@@ -84,7 +84,9 @@ wafu：https://wafuwafu.com/
 
 四叶草与雏菊：https://g.xn--8qvt52h.top/
 
-天遊二次元：https://www.tiangal.com/	
+天遊二次元：https://www.tiangal.com/
+
+维咔：https://www.vikacg.com/
 
 小鳥遊暁：https://t-satoru.top/
 
