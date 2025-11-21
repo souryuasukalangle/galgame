@@ -58,7 +58,7 @@ wafu：https://wafuwafu.com/
 
 顶峰acg：https://falook.life/	
 
-风花雪月：https://api.fh-xy.net/	
+风花雪月：https://fh-xy.net/	
 
 宫代千纱：https://gdqs.org/	
 
