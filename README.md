@@ -22,7 +22,7 @@ cngal：https://www.cngal.org/
 
 acgdb：https://acgdb.de/
 
-acg港湾：https://acggw.cc/	
+acg港湾：https://www.acggw.one/
 
 acg嘤嘤：https://acgyyg.ru/
 
@@ -54,15 +54,13 @@ wafu：https://wafuwafu.com/
 
 达の资源站：https://file.bakadax.top/	
 
-稻荷acg	：https://aozoracafe.com/
+稻荷acg：https://aozoracafe.com/
 
-顶峰acg：https://falook.life/	
+顶峰acg：https://dfacg.org/
 
 风花雪月：https://fh-xy.net/	
 
 宫代千纱：https://gdqs.org/	
-
-花月：https://alist.nekomoon.cc/	
 
 鲲gal：https://www.kungal.com/	
 
@@ -71,8 +69,6 @@ wafu：https://wafuwafu.com/
 萌次元：https://18moe.net/up.html	
 
 喵普拉斯：https://www.neko-plus.net/
-
-莫邪acg：https://xiuren.cyou/	
 
 绮梦acg：https://game.acgs.one/
 
@@ -90,9 +86,7 @@ wafu：https://wafuwafu.com/
 
 芯幻：https://xhcyra.com/	
 
-樱花acg：https://acgyhh.com/	
-
-樱刻春影：https://www.galgame.ink/	
+樱花acg：https://www.acgyhw.com/
 
 萤ノ光：https://yinghu.netlify.app/	
 
