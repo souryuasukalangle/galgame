@@ -98,4 +98,6 @@ wafu：https://wafuwafu.com/
 
 真红小站：https://www.shinnku.com/	
 
+琢玉游戏：https://freegame520.com/
+
 梓澪の妙妙屋：https://zi0.cc/
