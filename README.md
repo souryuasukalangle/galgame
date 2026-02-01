@@ -1,6 +1,6 @@
 galgame网站（现在只收集免费的，不麻烦的网站，论坛网站后续有空再整理，有事可加群联系）
 
-感谢江湖各位大佬们的付出，前面四个是看gal资料之类的，后面的可以下载资源
+感谢江湖各位大佬们的付出，前面三个是看gal资料之类的，后面的可以下载资源
 
 手机玩家，优先学会下载krkr2模拟器、tyranor模拟器、ons模拟器........
 
@@ -13,8 +13,6 @@ bgm：https://bgm.tv/game/browser/Galgame
 cngal：https://www.cngal.org/	
 
 月幕：https://www.ymgal.games/index
-
-重樱小学堂：https://galgamer.xyz/
 
 05的资源小站：https://05fx.022016.xyz/	
 
