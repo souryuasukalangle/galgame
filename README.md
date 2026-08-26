@@ -48,6 +48,8 @@ vndb：https://vndb.org/
 
 wafu：https://wafuwafu.com/
 
+v2dao：https://www.v2dao.com/
+
 次元茶馆：https://pan.cycg.xyz/
 
 达の资源站：https://file.bakadax.top/	
